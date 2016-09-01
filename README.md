@@ -1,2 +1,0 @@
-# Sinuka
-Jorginho em união.
